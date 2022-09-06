@@ -4,7 +4,7 @@ Elias Alvarez
 
 ## Video Link
 
-k
+https://youtu.be/lgXp1D5JFLc
 
 ## Version Info
 
